@@ -1,3 +1,1 @@
-
-![Simple-text- remix  (1)](https://github.com/user-attachments/assets/54d2235b-32af-4f01-9c6a-78b9be972cfd)
-
+![pp](https://github.com/user-attachments/assets/eda83e69-f8b6-48ed-987b-c8400c47e82f)
